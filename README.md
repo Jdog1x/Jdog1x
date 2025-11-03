@@ -1,3 +1,3 @@
-# 👋 Hi, I’m Jaden  
+c:
 
 Figurin' it out
